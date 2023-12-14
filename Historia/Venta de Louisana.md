@@ -1,0 +1,4 @@
+
+En [1803]  [Napoleón Bonaparte] Vende Louisana a Estados Unidos. En ese momento Napoleón era primer Cónsul nombrado por la República. Las casas [Barings] de Londres y Hope de Amsterdam garantizan la transacción. Es decir, compran los bonos de deuda emitida por el recién nacido país  de Estados Unidos de [Thomas Jefferson] y le entregan el metálico a la Francia de Napoleón. El territorio es mucho más grande al estado actual de Louisana, va desde New Orleans hasta Canadá. Esto es curioso pues un mes el [Imperio Británico] le declara la guerra a Napoleón (que había recibido el dinero para financiar su armada de mano de los mismos bancos ingleses).
+
+![[louisana_purchase.png]]
